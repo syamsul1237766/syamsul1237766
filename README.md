@@ -5,8 +5,9 @@
 - 📫 How to reach me ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
-
-<!---
+ayah abi jama
+nama<!---
 syamsul1237766/syamsul1237766 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
---->
+--->tolong bantu Saya kirim uang dana 50000
+kerekening dana 087769018504
